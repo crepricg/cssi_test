@@ -1,3 +1,3 @@
 # cssi_test
 
-nono, I'm the real Riccardo.
+Riccardo C. and the real one collaborate on this
